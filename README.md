@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @error-username-cannot-load
+- 👀 I’m interested in learning python
+- 🌱 I’m currently learning well python i guess
+- 💞️ I’m looking to collaborate on nothing lol
+- 📫 How to reach me joe31415@outlook.com
